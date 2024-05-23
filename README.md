@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JannatJafira
-- 👀 I’m interested in Paining , coding , software development
+- 👀 I’m interested in Painting , coding , software development
 - 🌱 I’m currently learning Java ..as I am a CSE student
 
 - 📫 How to reach me ...contact:01559541483; mail: jafirajannat62@gmail.com/12jafira@gmail.com
